@@ -1,1 +1,0 @@
-# jutaangambar.github.io
